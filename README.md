@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Vishal
 - 👀 I’m interested in learning as many languages as I can 
 - 🌱 I’m currently learning python
-- 📫 How to reach me @vdix2005@gmail.com or intagram : @vdiisxhiatl
+- 📫 How to reach me @vdix2005@gmail.com or intagram : @vishaldixit_1024
